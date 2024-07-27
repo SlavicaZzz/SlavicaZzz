@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding and design
 - 🌱 I’m currently learning programming, working with codes... I like to make websites, web design and make applications
 - 💞️ I’m looking to collaborate with people who are interested in programming, people who like code and design... cool people
-- 📫 How to reach me secretly
+- 📫 How to reach me : secretly
 - 😄 Pronouns: She / her
 - ⚡ Fun fact: I can very well convince you to try something, I am very persistent in what I want to achieve
 
